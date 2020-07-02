@@ -1,3 +1,3 @@
 # Getting started with social media
 
-Help manage our social media accounts.
+Please contact Stove if you would like to help manage our social media accounts.
